@@ -45,4 +45,4 @@ We reserve the right to update this Privacy Policy at any time. Users will be no
 
 If you have any questions regarding this Privacy Policy, please contact us at:
 
-Email: support@pixelon.com
+Email: quizappmobile@gmailß.com
